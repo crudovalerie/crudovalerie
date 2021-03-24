@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋need a hand before my life gets screwed need to ñwarn something about whattsapp 
 
 <!--
 **crudovalerie/crudovalerie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
